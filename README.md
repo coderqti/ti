@@ -1,2 +1,1 @@
-# ti
-my_portifolio
+# My portifolio >> Timothy Mwangi
